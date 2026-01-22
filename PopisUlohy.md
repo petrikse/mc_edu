@@ -1,1 +1,1 @@
-pyramindy rôznych velkosti a motivmi.
+Pyramindy rôznych velkosti a z roznymi motivmi.
