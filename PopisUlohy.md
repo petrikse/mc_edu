@@ -1,1 +1,1 @@
-Pyramindy rôznych velkosti a z roznymi motivmi.
+Pyramida s zaujimavym interierom
